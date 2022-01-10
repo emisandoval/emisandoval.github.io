@@ -24,7 +24,4 @@
 
 
 
-
-
-
 Have questions about Emi Sandoval's Portfolio? Message my [inbox](mailto:emisandoval48@gmail.com)
