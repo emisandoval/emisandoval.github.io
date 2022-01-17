@@ -4,6 +4,8 @@
 
 #### 1/9/2022: [Explain Your Program](https://youtu.be/jDI9WvAlDuU)
 
+#### 1/16/2022: [Animal Parade](https://youtu.be/xoRiPv3JasA)
+
 
 
 
