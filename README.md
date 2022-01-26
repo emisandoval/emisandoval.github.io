@@ -8,6 +8,8 @@
 
 #### 1/16/2022: [Animal Parade](https://youtu.be/xoRiPv3JasA)
 
+#### 1/23/2022: [Nested Repeats Octagon](https://youtu.be/rM2W9L4S4UQ)
+
 
 
 
