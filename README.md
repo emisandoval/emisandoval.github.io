@@ -12,6 +12,7 @@
 
 #### 1/25/2022: [Monkey Events Code Explanation](https://youtu.be/sBhJ8bMwk5Y)
 
+#### 1/30/2022: [Shapes Code Explanation](https://youtu.be/WA7f2j1eFjg)
 
 
 
