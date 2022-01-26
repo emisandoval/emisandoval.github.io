@@ -10,6 +10,8 @@
 
 #### 1/23/2022: [Nested Repeats Octagon](https://youtu.be/rM2W9L4S4UQ)
 
+#### 1/25/2022: [Monkey Events Code Explanation](https://youtu.be/sBhJ8bMwk5Y)
+
 
 
 
