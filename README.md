@@ -16,6 +16,8 @@
 
 #### 2/6/2022: [Conditional Loop Repeats Explanation](https://youtu.be/FzMlNez9wDQ)
 
+#### 2/7/2022: [If Else Code Explanation](https://youtu.be/rS75K4JcZpA)
+
 
 
 
