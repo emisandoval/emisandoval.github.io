@@ -14,6 +14,8 @@
 
 #### 1/30/2022: [Shapes Code Explanation](https://youtu.be/WA7f2j1eFjg)
 
+#### 2/6/2022: [Conditional Loop Repeats Explanation](https://youtu.be/FzMlNez9wDQ)
+
 
 
 
