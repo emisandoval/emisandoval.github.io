@@ -18,6 +18,8 @@
 
 #### 2/7/2022: [If Else Code Explanation](https://youtu.be/rS75K4JcZpA)
 
+#### 2/20/2022: [Penguin](https://youtu.be/iZW1HblaBVg)
+
 
 
 
