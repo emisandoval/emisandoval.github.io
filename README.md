@@ -24,6 +24,8 @@
 
 #### 3/06/2022: [Sun Drawing Code Explanation](https://youtu.be/xfn0HfFD0ZM)
 
+#### 3/13/2022: [Geography Lists Code Explanation](https://youtu.be/dDslIYZs0dQ)
+
 
 
 
